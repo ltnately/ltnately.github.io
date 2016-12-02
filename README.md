@@ -1,1 +1,0 @@
-# ltnately.github.io
